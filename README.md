@@ -1,2 +1,2 @@
-# Yi
-My name is Yi.
+# Bridget
+My name is Bridget.
